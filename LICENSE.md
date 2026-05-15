@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with professional Polymarket Addon | gas-optimization + take-profit-orders, the #1 addon. Includes gas-optimization and take-profit-orders for a
 
 
 
